@@ -1,2 +1,1 @@
-# Fucky_projeck
-My 8-th project, but II understand nothing.
+Huevalky zaduvalky vosmiraky bueraky inim dvinem pmjamo v sr...
